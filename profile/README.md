@@ -4,7 +4,7 @@
 | ------------------ | ----------------------- | ------------------------------------------------ | ----------------------------------------------------------------------------------------- |
 | **Vavada**         | 1000₽ + 100 FS         | Без паспорта, ОБЯЗАТЕЛЬНО VPN                   | [Vavada](https://gate707.com/?promo=3c4686a6-85c8-4f7b-b115-14ed7862b5fb&target=register) |
 | **1win**           | До 500% + 100 FS        | Промокод: FREEBET321                             | [1win](https://1wilib.life/casino/list?open=register&p=awno) |
-| **Stake**          | 100% + до 300 FS        | Кэшбэк до 20%, интересная механика               | [Stake](https://honeymoneybonus.com/?ref=ODkyOTZfcmVmZXJyYWw=)                       |
+| **Stake**          | 100% + до 300 FS        | Кэшбэк до 20%, интересная механика               | [Stake](stake1043.com/?c=JiMxFVsp)                       |
 | **BC.Game**        | До 1 BTC                | Мгновенные выплаты, криптовалюты                 | [BC.Game](https://bcgame.nz/i-3a9esjz8l-n/)                                               |
 | **DragonMoney**    | До 150% + кэшбэк        | Турниры, лутбоксы, быстрые выплаты               | [DragonMoney](https://dgr.so/ff0b01f78)              |
 | **Kometa**         | 100% + 100 FS           | Красочный интерфейс, слоты, турниры              | [Kometa](https://tropical-path.com/s7d8a1999)                                             |
